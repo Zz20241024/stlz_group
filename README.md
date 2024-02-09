@@ -1,2 +1,3 @@
 sensetime 离职微信群  雄起
-![微信图片_20240201165509](https://github.com/zhangliu520/group_chat/assets/21235078/58a1f518-7b25-44cf-9d61-166ac279c31f)
+![微信图片_20240209095248](https://github.com/Zz20241024/stlz_group/assets/21235078/72045077-f075-4829-a4ea-836fe6a6af85)
+
