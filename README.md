@@ -1,4 +1,5 @@
 sensetime 离职微信群  雄起
-![01b9e1cdb98432e18bc9c48a01058b2](https://github.com/Zz20241024/stlz_group/assets/21235078/0c7743d8-f457-487a-a85f-4551b3eb5c96)
+
+![d772df35a492f336df760dbc9af6d55](https://github.com/Zz20241024/stlz_group/assets/21235078/29a9e148-6428-4e28-9944-50ac770b2b98)
 
 
